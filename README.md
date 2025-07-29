@@ -62,10 +62,14 @@ Made with ❤️ by:
 **RAMESH MEWALAL VISHWAKARMA**  
 RMV ASSOCIATES • RMV GROUPS  
 🌐 [rmvdigitaltools.blogspot.com](https://rmvdigitaltools.blogspot.com)  
-📧 contact@rmvgroups.in (replace with your email)
+📧 rmvgroups1973@gmail.com
 
 ---
+Support My Work
+1. https://buymeacoffee.com/rmvgroups?new=1 
 
+2. https://ko-fi.com/rameshmewalalvishwakarma
+---
 ## 📎 License
 
 Free to use under MIT License – commercial use allowed. Attribution appreciated.
